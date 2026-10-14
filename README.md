@@ -1,0 +1,2 @@
+# premium-icon-painting-001-byzantine-icon-painting-gold
+Tired of feeling that sacred art is out of reach? This lab walks you through the ancient techniques of Byzantine icon painting and gold leaf application, so you can create your own luminous icons from your home studio.  This digital lab demystifies the sacred craft by breaking down the process into manageable steps, covering everything from prepari
